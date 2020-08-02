@@ -1,0 +1,1 @@
+![N|Solid](https://i.imgur.com/CkaIgNM.gif)
